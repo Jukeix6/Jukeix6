@@ -28,7 +28,7 @@ Tớ tên là Phạm Gia Mẫn còn được có biệt danh là Jukei🦄
 
 - 🦄 Faceebok : **[Pham Gia Man](https://www.facebook.com/JUKEI.User)**
 - 🦄 Youtube : **[Phạm Gia Mẫn](https://youtube.com/channel/UCki2C0QRxyagGhnfiGepX_w)**
-- 🦄 Gmail : **[zmann.jukei@gmail.com](https://gmail.com)**
+- 🦄 Gmail : **[jukei.official@gmail.com](https://gmail.com)**
 - 🦄 Github : **[Jukei](https://github.com/Jukeix6)**
 - 🦄 Zalo: **[Phạm Gia Mẫn](0352479495)**
 - ----------------------------------------💚**Jukei**💛----------
