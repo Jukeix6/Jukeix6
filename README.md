@@ -1,5 +1,5 @@
 <h1> Xin chào <img src="https://github.com/souvikguria98/souvikguria98/blob/master/Hi.gif" width="25"></h1> 
-Tớ tên là Phạm Gia Mẫn còn được có biệt danh là Jukei🦄
+Tớ tên là Phạm Gia Mẫn còn được có biệt danh là Jukei
 
 <p align="center">
 	<a href="https://github.com/Jukeix6"><img alt="commits" src="https://img.shields.io/github/commit-activity/m/Jukei/jukeix6_uwu.svg?label=commit&style=flat-square"></a>
