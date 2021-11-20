@@ -6,7 +6,7 @@ Tớ tên là Phạm Gia Mẫn còn được có biệt danh là Jukei🦄
     	<img alt="visitors" src="https://visitor-badge.laobi.icu/badge?page_id=page.Jukeix6">
 </p>
 <p align="center">
-    <img align="center" alt="GIF" src="https://i.redd.it/hzaufj70z0v21.gif" />
+    <img align="center" alt="GIF" src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fsteamuserimages-a.akamaihd.net%2Fugc%2F925924465568430758%2FDB287DA3F03C5B879F23602DBB8F661C4FD7263D%2F%3Fimw%3D5000%26imh%3D5000%26ima%3Dfit%26impolicy%3DLetterbox%26imcolor%3D%2523000000%26letterbox%3Dfalse&imgrefurl=https%3A%2F%2Fsteamcommunity.com%2Fsharedfiles%2Ffiledetails%2F%3Fl%3Dvietnamese%26id%3D1309703151&tbnid=5HxP_NnEpkfVAM&vet=1&docid=AHXz5p0H7YCCFM&w=539&h=303&itg=1&source=sh%2Fx%2Fim " />
 </p> 
 
 **Giới thiệu**
